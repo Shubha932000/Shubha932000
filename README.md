@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Shubha Rawat
-- sophomore student at NIT Jamshedpur
+- pre-final year student at NIT Jamshedpur
 
 
 
